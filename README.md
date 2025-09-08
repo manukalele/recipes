@@ -1,2 +1,2 @@
-# receitas doo paeeee
-ainda não fiz nada nesse repo
+# RECEITAS DA ANA
+Apresento a vocês as deliciosas receitas da Ana.
